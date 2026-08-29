@@ -49,5 +49,5 @@ Japan
 
 ## 📫 Contact
 
-- LinkedIn: [Your LinkedIn]
-- Email: [naylinaung9810libra]
+- LinkedIn: [www.linkedin.com/in/nay-lin-aung10]
+- Email: [naylinaung9810libra@gmail.com]
